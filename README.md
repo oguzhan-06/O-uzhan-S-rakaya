@@ -1,1 +1,0 @@
-# O-uzhan-S-rakaya
